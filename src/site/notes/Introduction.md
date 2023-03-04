@@ -15,7 +15,9 @@ I am serious.  Before you toss this, however, ask yourself whether you relate.
 
 Like a manual, this is designed to give you a path on how you, the man, can understand the underlying mechanics of a relationship.
 
-### [[Challenges Facing Men/Challenges Facing Men\|Challenges Facing Men]]
+[[Challenges Facing Men/Challenges Facing Men\|Challenges Facing Men]]
+
+
 
 
 
