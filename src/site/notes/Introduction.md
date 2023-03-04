@@ -11,11 +11,17 @@ The idea is that, without such training, you could hurt yourself or someone else
 
 Couldn't the same be said about marriage?
 
-[[The Therapy Trap/Therapy Will Not Save You\|Therapy Will Not Save You]]
+I am serious.  Before you toss this, however, ask yourself whether you relate.
 
-Not that most men event want to go to therapy in the first place.
+Like a manual, this is designed to give you a path on how you, the man, can understand the underlying mechanics of a relationship.
 
-But, even if you did or felt that it was something to consider, it could actually make things much worse.
+### [[Challenges Facing Men/Challenges Facing Men\|Challenges Facing Men]]
+
+
+
+
+
+
 
 
 
